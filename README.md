@@ -7,4 +7,3 @@ Descriptive analysis of data
 What is the best place to sight an UFO?
 What is the best time to sight an UFO?
 What is best time to sight an UFO in the most common place?
-https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Ufo_-_Flickr_-_Amanclos.jpg/640px-Ufo_-_Flickr_-_Amanclos.jpg
